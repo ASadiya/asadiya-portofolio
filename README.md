@@ -1,3 +1,4 @@
+https://github.com/ASadiya/asadiya.github.io/blob/main/assets/img/photo_2024-10-06_13-23-18.jpg
 # AI Student
 
 ### Education
